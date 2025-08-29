@@ -1,19 +1,12 @@
-# Fixed Xeno Made By (ente0216)
+# Personal Statement
 
-Hello Guys, I'm Ente (ente0216 Discord)
+Mr.Ducky (also known as Ente)  
+30/08/2025  
 
-I fixed and made Xeno better.
+Since 27/08/2025, I’ve experienced the most betrayal and hate I’ve ever felt on Discord, all over **one picture** I sent to 2Hell. From our very first conversation, 2Hell and I agreed not to share anything I sent. I never sent him any sources or sensitive material, just **one picture**, and he shared it anyway.  
 
-So yeah, if you're going to use this source, please leave a credit.
+He tried to make me betray friends I consider brothers, but I **did not betray them**. I chose to stay loyal to my friends, because I’m not betraying them for some random person I met only a month ago on Discord. Despite this, my friendship with some has still been affected. The image contained private information, yet he still made fun of it. **Don’t forget that part.**  
 
-## Tests
-- [sUNC](https://sunc.rubis.app/?scrap=TOa3NsqqkbLuSaNG&key=hgLkcXzASNtCH40vOMkaEZIPMakSoTo9)
+Without those friends, the people I truly consider brothers, I **cannot continue** anything. I quit. I quit. I quit. I don’t want to have anything to do with Roblox content or Discord anymore.  
 
-## UNC Test
-![UNC Test Screenshot](https://media.discordapp.net/attachments/1392913504465321994/1408653542365069392/image.png?ex=68aa8658&is=68a934d8&hm=87e819df180d218e311357278af7ffff2c46eb4796a9a02089ded9ee3e8c64df&=&width=1845&height=418)
-
-**Happy Skidding**
-
-> ⚠️Credits to Rizve For the Orginal Source
-
-> ⚠️ Also Thanks to Proohio, ChimeraLle and PSWalloz For Helping Me
+**I’m gone. I’m gone. I’m gone.**
